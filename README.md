@@ -1,1 +1,2 @@
-# the-rebirth-of-an-8th-circled-wizard
+# The Rebirth Of An 8th-Circled Wizard
+Le plus grand sorcier du monde et premier mage a avoir atteint le 8ème cercle est accusé de trahison, lâchement capturé et exécuter en public. A sa mort il est invoqué et renaît par accident dans le corps de son invocateur. Dans un nouveau corps, et après avoir perdu tous ses pouvoirs ainsi que ses ressources, il décide de se consacrer à la vengeance. Pour se faire, il décide de prendre un autre chemin que dans sa précédente vie, et débute son aventure…
